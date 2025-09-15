@@ -1,0 +1,2 @@
+#Ödevleri geç teslim ettiğim için kusura bakmayın. Elimden geldiğince günceli yakalamaya ve ödevleri teslim etmeye çalışıyorum.
+    Böyle sayfalar yaptığımı görmek mutlu edici. Her ne kadar şimdilik sıkı sıkıya çalışamasak da daha iyiye doğru gideceğiz inşallah. <3 
